@@ -6,7 +6,7 @@
 
 <p>Very interesting insights were derived from the data and made available in the comprehensive report</p>
 
-# ![image](https://github.com/pappykkay/papp.github.io/assets/119144075/5ce9b4d6-f040-46b5-bcb3-217c40310
+# ![image](https://github.com/pappykkay/papp.github.io/assets/119144075/5ce9b4d6-f040-46b5-bcb3-217c40310)
 
 # ![image](https://github.com/pappykkay/koladeyanju.github.io/assets/119144075/7eb6b290-4a5b-48db-a6af-e3be4630e1fc)
 
